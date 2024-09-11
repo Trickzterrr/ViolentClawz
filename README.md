@@ -5,7 +5,7 @@
 - ✨: Safe Server!
 - ✨: Always FNaF Area & Party Island.
 - ✨: Sometimes Poppy Playtime Area & Campfire tents.
-- ✨: Rarely Hazbin Hotel area, Cafe, & Docks.
+- ✨: Rarely Hazbin Hotel area, Sonic area, Cafe, & Docks.
 - ✨: 13+ int
 - ✨: More details VIA Patreon.
 
