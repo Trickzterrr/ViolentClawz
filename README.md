@@ -1,3 +1,2 @@
-1 ᴄᴏʀɪɴᴛʜɪᴀɴꜱ 13:4
-
-ʟᴏᴠᴇ ɪꜱ ᴘᴀᴛɪᴇɴᴛ ᴀɴᴅ ᴋɪɴᴅ; ʟᴏᴠᴇ ᴅᴏᴇꜱ ɴᴏᴛ ᴇɴᴠʏ ᴏʀ ʙᴏᴀꜱᴛ; ɪᴛ ɪꜱ ɴᴏᴛ ᴀʀʀᴏɢᴀɴᴛ ᴏʀ ʀᴜᴅᴇ.
+  ive forgotten how to make these😭 i used to have an image in this then somehow messed it up 💀
+  Hellooo you can find more info about me on my patreon :3 
