@@ -2,4 +2,4 @@ Hellooo you can find more info about me on my patreon :3
 
 
 
-![image](https://cdn.discordapp.com/attachments/969387653436940328/1333841720252563456/image.png?ex=679a5c67&is=67990ae7&hm=4a3dfa5a50c38225884959bfb2edd50b74b8078ee7b8a3adff82cde9d46ff32c&)
+![image](https://media.discordapp.net/attachments/969387653436940328/1323088133071306916/GRQ6jH6WEAEqPYR.jpg?ex=67a4ad98&is=67a35c18&hm=81b541977015f545b80d1afff613235dc329b848dd7fe099071eab0354b02536&=&format=webp&width=959&height=539)
