@@ -1,4 +1,4 @@
-Hellooo you can find more info about me on my patreon :3 (im trying to revamp this page as i barely use it 😅)
+Hellooo you can find more info about me on my patreon :3
 
 
 
